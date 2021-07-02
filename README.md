@@ -1,1 +1,0 @@
-# aprende_ajedrez
